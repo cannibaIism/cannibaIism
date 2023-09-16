@@ -22,6 +22,6 @@ Do NOT copy or inspo my skins. Me and my friends will call you out for doing it.
 <p align="center">
 I am weary of Enmu skins/kins, you are fine to interact, just do it with caution. <img src="https://kingcrimson.crd.co/assets/images/gallery14/bf49b321.gif?v=d4e19a66">
 <p align="center">
-<img src="https://kingcrimson.crd.co/assets/images/gallery01/da6dece2.gif?v=f740b5c3"> "Fans" (and I use that word so loosely) of The Texas Chainsaw Massacre (TCM) dni. I've been in love with the movies for over a decade. You will never love it the way I do. Do not speak to me at all.
+<img src="https://kingcrimson.crd.co/assets/images/gallery01/da6dece2.gif?v=f740b5c3"> "Fans" (and I use that word so loosely) of The Texas Chainsaw Massacre (TCM) dni. I've loved the movies for over a decade. You will never love it the way I do. Do not speak to me at all.
 <p align="center">
 </p> 

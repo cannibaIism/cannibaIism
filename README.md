@@ -1,6 +1,6 @@
 <p align="center">
 <img src="https://pbs.twimg.com/media/FTCzt2DaQAcK7IJ?format=jpg&name=large" width="450">
-<h1 align="center"> <img src="https://kingcrimson.crd.co/assets/images/gallery05/be1209c9.gif?v=c96189b9"> Do NOT Interact / Before You Interact <img src="https://kingcrimson.crd.co/assets/images/gallery16/2884da48.gif?v=c96189b9"> </h1>
+<h1 align="center"> Do NOT Interact / Before You Interact </h1>
 <p align="center">
  <img src="https://kingcrimson.crd.co/assets/images/gallery01/964e63bd.gif?v=c96189b9"> Anyone under 18, I prefer friends closer in age range. 
 <p align="center">

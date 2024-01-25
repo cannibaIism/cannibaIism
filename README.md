@@ -1,5 +1,5 @@
 <h1 align="center">THE PISS KING</h1>
-<p align="center">  Run from me, darlin'. You better run for your life.
+<p align="center">  Run from me, darlin'. You'd better run for your life.
 <p align="center"> <img src="https://files.catbox.moe/g5r3d5.png" width="350"> 
 <li>I go by Bum primarily, though I go by other names as well. </li>
 <li>20, Oct. 9th. He/Him ∙ BiAro Male</li>
